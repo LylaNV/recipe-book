@@ -15,7 +15,7 @@ Delicious Turkish Appetizer
 
 ## Instructions
 
-- Wash the rice 3-5 times in lukewarm water until the water runs clear. Bring a small pot of water to boil, salt the water as you would pasta water, and add the rice. Cook until the rice is al dente, drain, and let it cool slightly. This takes 5-10 minutes. Don’t let the rice get mushy.
+- Wash the rice 4-6 times in lukewarm water until the water runs clear. Bring a small pot of water to boil, salt the water as you would pasta water, and add the rice. Cook until the rice is al dente, drain, and let it cool slightly. This takes 5-10 minutes. Don’t let the rice get mushy.
 - Fry the onion in two tablespoons of oil over medium to medium-high heat until golden. Season with salt and pepper and add the chopped herbs. Cook until wilted, 1-2 minutes. Turn the heat off. Add the rice, 1/4 cup of lemon juice, 1 teaspoon of sugar, and season with salt and pepper. Mix well. Taste, and add seasoning if necessary.
 - Remove any remaining stems from vine leaves, and wash. Add hot water and salt and boil for 1-2 minutes until leaves soften slightly. Drain water and allow to cool.
 - Add 2 tbsp of oil to the bottom of a small to medium pot and cover it with a layer or two of grape leaves to protect the dolmeh from direct heat.
